@@ -1,4 +1,4 @@
-# **Poppy Playtime Chapter 4 APK [Gratis] – Descargar Versión Móvil para Android**
+# **Poppy Playtime Chapter 4 APK [Gratis] Descargar Versión Móvil para Android**
 
 ## [Enlace de descarga](https://bom.so/0t5FcW)
 
